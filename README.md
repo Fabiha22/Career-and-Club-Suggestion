@@ -1,0 +1,1 @@
+Through this project, one can find the relevant clubs events easily. Besides one can take suggestion from instructor about his career. Instructors can give advice or suggest the students about their career. 
